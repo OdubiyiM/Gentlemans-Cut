@@ -1,0 +1,2 @@
+# Gentlemans-Cut
+THE GENTLEMAN ’ S CUT LAGOS • EST. 2019
